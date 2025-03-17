@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ruesselschnurps
 - 👀 I’m interested in Donaldism
-- 🌱 I’m currently learning Python and keeping calm in the presence of chaos
+- 🌱 I’m currently learning to stay calm in the presence of chaos
 - 💞️ I’m looking to collaborate on the donaldistic web page
 - 😄 Pronouns: he/his/him
 - ⚡ Fun fact: I found square chickesn in Machu Picchu
